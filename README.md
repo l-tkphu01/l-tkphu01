@@ -1,5 +1,5 @@
 
-## __Hi!  I'm Luu Tran Kim Phu 
+## __Hi!  I'm Luu Tran Kim Phu__
 
 ## Connect with me:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](htttps://discord.gg/https://discord.gg/d9pTmQWe) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/phu.luu.5245961?mibextid=ZbWKwL) 
